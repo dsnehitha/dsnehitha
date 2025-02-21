@@ -20,7 +20,7 @@
 
 🚀 Whether it’s **RAG, NLP, Vision-Langauge Models, fine-tuning LLMs, or building AI-driven applications**, I’d love to team up!
 
-**📩 Reach me at:** domakuntlasnehitha@gmail.com
+**📩 Reach me at:** domakuntlasnehitha@gmail.com || https://www.linkedin.com/in/snehitha-domakuntla/
 
 **⚡ Fun Fact**
 
